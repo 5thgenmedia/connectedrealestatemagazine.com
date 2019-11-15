@@ -1,0 +1,2 @@
+# connectedrealestatemagazine.com
+connectedrealestatemagazine.com
